@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @ajowebug
+- 👀 I practice css offcourse for frontend design
+- 🌱 Interested in php and love it
+- 🎸  aslo do music like shit...
+- 💞️ I’m looking to collaborate on anything fu 
+- 📫 ajoweb.a0001.net..
+- 📞+256787932294
